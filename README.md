@@ -8,4 +8,4 @@ Tugas DTS:
 
 3) Submit link repository tersebut sebagai tugas bagian ini
 
-karena saya terlambat saya attach ke link yang saya submit. Mohon maaf sebelumnya, masih newbie.
+
